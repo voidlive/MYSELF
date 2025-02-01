@@ -1,7 +1,3 @@
-Got it! Here’s a more fun and cheeky version of the whole profile:
-
----
-
 # 👾 **Welcome to the Void, where things get *dirty*...** 🕶️💻
 
 ---
